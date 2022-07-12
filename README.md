@@ -9,6 +9,7 @@ SATIN ALMAK İÇİN İLETİŞİME GEÇEBİLİRSİNİZ!
 İg: by.can.i [Web Sitem 1](https://fastuptime.com) [Web Sitem 2](https://speedsmm.com)
 ![image](https://user-images.githubusercontent.com/63351166/178411172-98f5e9c9-26ef-4a7a-8bf9-a18105e587d7.png)
 ![image](https://user-images.githubusercontent.com/63351166/178411321-6ed3f8ee-9318-4709-b9ee-6a42ae5b1449.png)
+![image](https://user-images.githubusercontent.com/63351166/178411624-a293cbda-3a96-454c-8e59-ca77d041eef4.png)
 
 # Daha fazla ss için iletişime geçiniz
 
